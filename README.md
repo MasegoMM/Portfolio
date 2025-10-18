@@ -12,7 +12,5 @@
 
 ## Let's connect
 Email : moatshemasego0@gmail.com
-Linkdin : <a>https://www.linkedin.com/in/masego-moatshe-0059b7334/</a>
-
 
 "Data is not just numbers; it's the story of our decisions and their impacts."
